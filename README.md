@@ -1,2 +1,3 @@
 # Base-Clear-V3-Polos
-Ola bom dia ou boa noite espero que se goste dessa base.
+Essa Base foi  essatamente  para começar do zero e  pode mexer avontade  e fazer seu server
+Base feita Por  ᵛᵘˡᵍᵒ.lancer  discord : ᵛᵘˡᵍᵒ.lancer#6368
